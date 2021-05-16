@@ -1,2 +1,0 @@
-#sbdhfbjsd
-power designer
